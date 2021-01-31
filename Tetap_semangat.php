@@ -1,1 +1,0 @@
-TETAP SEMANGAT !!!
